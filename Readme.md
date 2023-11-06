@@ -1,4 +1,4 @@
-## Jorge Gómez Data
+# Jorge Gómez
 
 Profesional en Negocios Internacionales y Master en Gerencia con experiencia en gestión, coordinación y ejecución de proyectos.
 
